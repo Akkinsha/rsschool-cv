@@ -1,4 +1,4 @@
-#Shikunov Artem 
+#Shikunov Artem  ![Me](https://www.google.com/url?sa=i&url=https%3A%2F%2Fru.pinterest.com%2Fpin%2F628604060486373398%2F&psig=AOvVaw2-GIeJ5VPPPJjCLxy9UyxC&ust=1670695908670000&source=images&cd=vfe&ved=0CBAQjRxqFwoTCKjHgbaR7fsCFQAAAAAdAAAAABAE, "me")
 _____ 
 ##*Contacts for communication* 
 **Address:** Belarus, Minsk, Pr. Dzerzhinskogo 119, 782 f. 
