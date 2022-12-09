@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Akkinsha.github.io/rsschool-cv/cv
